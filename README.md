@@ -1,0 +1,3 @@
+Hey Foodies,
+
+Today’s recipe is of Indo Chinese origin, your favorite Honey Chilli Potato homemade. If you like sweet and spicy flavors then without even giving it a second thought quickly make this recipe. Kids love it and adults love it even more. French fries shaped potatoes twice coated with batter and then twice fried for that extra crispness. Sauce flavored with garlic and onion and sauces added to elevate the taste, little honey and tomato ketchup to add to the sweetness and then fried potatoes tossed in the rich thick sauce….honey chili potatoes are ready. Sure shot hit at your parties. Let’s begin making it.
